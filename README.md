@@ -1,2 +1,0 @@
-# Bolumsonu
-Over.
